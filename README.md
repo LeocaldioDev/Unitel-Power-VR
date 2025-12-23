@@ -28,6 +28,12 @@ O **Unitel Power VR** foi idealizado como uma forma de demonstrar como a **Reali
 
   ![com LeocaldioCarlos UnitelPower-20251222-163946](https://github.com/user-attachments/assets/c89bc655-38e5-4084-9ae1-d2fbfa5a9cfc)
 
+  
+
+
+https://github.com/user-attachments/assets/2b0dfbb5-98fb-4cd0-9a0f-5c48c08624b4
+
+
 
   ![com LeocaldioCarlos UnitelPower-20251222-164150](https://github.com/user-attachments/assets/c25af8b3-cb12-4ef8-bcb9-5ec848ca41f8)
 
@@ -37,6 +43,10 @@ O **Unitel Power VR** foi idealizado como uma forma de demonstrar como a **Reali
 
 ![com LeocaldioCarlos UnitelPower-20251222-164325](https://github.com/user-attachments/assets/8e70ed7a-526e-4d30-be7b-933afa9ab92a)
 
+
+
+
+https://github.com/user-attachments/assets/80d2aa9c-ffff-460f-bbec-3f53c0188b8f
 
 
 
